@@ -37,7 +37,5 @@ Top 100 Greatest Movies of All Time (The Ultimate List)
 36 Point Break (1991)
 37 Fight Club (1999)
 38 The Good, The Bad And The Ugly (1966)
-
 39 Lawrence Of Arabia (1962)
-
 40 Mulholland Drive (2001)
